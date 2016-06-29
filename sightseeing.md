@@ -1,0 +1,7 @@
+- Kajak (københavns havn, kanalerne, Christiania, Den lille havfrue)
+- Rundetårn
+- Christiania
+- Køre på cykel (evt. de hvide lejecykler)
+- Zoologisk have
+- Strøget
+- Kanalrundfart
