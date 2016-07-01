@@ -7,3 +7,4 @@
 - Kanalrundfart
 - Tivoli
 - Roskilde vikingemuseum
+- Kronborg slot (Holger Danske?)
