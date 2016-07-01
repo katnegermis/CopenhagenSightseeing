@@ -8,3 +8,5 @@
 - Tivoli
 - Roskilde vikingemuseum
 - Kronborg slot (Holger Danske?)
+- Copenhagen Streetfood
+- Torvehallerne
