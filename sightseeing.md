@@ -1,7 +1,9 @@
 - Kajak (københavns havn, kanalerne, Christiania, Den lille havfrue)
 - Rundetårn
 - Christiania
-- Køre på cykel (evt. de hvide lejecykler)
+- Køre på cykel rundt i byen (evt. de hvide lejecykler), evt. ude ved Langelinje
 - Zoologisk have
 - Strøget
 - Kanalrundfart
+- Tivoli
+- Roskilde vikingemuseum
