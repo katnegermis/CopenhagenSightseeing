@@ -1,7 +1,14 @@
 - Kajak (københavns havn, kanalerne, Christiania, Den lille havfrue)
 - Rundetårn
 - Christiania
-- Køre på cykel (evt. de hvide lejecykler)
+- Køre på cykel (evt. de hvide lejecykler).
 - Zoologisk have
 - Strøget
 - Kanalrundfart
+
+- Louisiana
+- Dronning Louises bro i myldretiden og opleve flokke af cykler
+- Det gamle København såsom Pisrenden og Magstrædet
+- Havnerundfart
+- Se brokvarterene
+- Gå/cykle fra Nørreport ned ad Nørrebrograde, fordi der sker meget på den gade og man kommer forbi forskellige dele af København.
