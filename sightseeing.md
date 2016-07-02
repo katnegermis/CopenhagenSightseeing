@@ -14,3 +14,5 @@
 - Havnerundfart
 - Se brokvarterene
 - Gå/cykle fra Nørreport ned ad Nørrebrograde, fordi der sker meget på den gade og man kommer forbi forskellige dele af København.
+- Copenhagen Streetfood
+- Torvehallerne
