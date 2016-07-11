@@ -4,6 +4,8 @@
 - Køre på cykel rundt i byen (evt. de hvide lejecykler), evt. ude ved Langelinje
 - Zoologisk have
 - Strøget
+- Christiansborg
+- Børsen
 - Kanalrundfart
 - Tivoli
 - Roskilde vikingemuseum
@@ -14,6 +16,8 @@
 - Havnerundfart
 - Se brokvarterene
 - Gå/cykle fra Nørreport ned ad Nørrebrograde, fordi der sker meget på den gade og man kommer forbi forskellige dele af København.
-- Copenhagen Streetfood
+- Copenhagen Streetfood (Papirøen)
 - Torvehallerne
 - Copenhagen Jazzfestival
+- Københavns domkirke. Skulpturerne er lavet af den anerkendte dansk-islandske billedhugger Bertel Torvaldsen.
+- 
