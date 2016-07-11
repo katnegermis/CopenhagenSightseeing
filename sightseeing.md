@@ -16,6 +16,7 @@
 - Havnerundfart
 - Se brokvarterene
 - Gå/cykle fra Nørreport ned ad Nørrebrograde, fordi der sker meget på den gade og man kommer forbi forskellige dele af København.
+- Cykle. For en som kun har cyklet som barn kan det i sig selv være en stor oplevelse at cykle en kort tur rundt om blokken.
 - Copenhagen Streetfood (Papirøen)
 - Torvehallerne
 - Copenhagen Jazzfestival
